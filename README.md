@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Deepandx
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...marekting and ads 
+- 🌱 I’m currently learning ...markting and ads 
 - 💞️ I’m looking to collaborate on ...social media management 
 - 📫 How to reach me ...
 
